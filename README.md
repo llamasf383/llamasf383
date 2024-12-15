@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @llamasf383
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning "useless stuff that I will never use" in school
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Don't
 - 😄 Pronouns: Attack Helicopter/Walmart Grocery Bag
 - ⚡ Fun fact: I might be sped, but my brain is still slow
